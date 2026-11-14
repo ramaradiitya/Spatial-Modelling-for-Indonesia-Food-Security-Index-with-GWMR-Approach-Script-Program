@@ -1,0 +1,1 @@
+# Spatial-Modelling-for-Indonesia-Food-Security-Index-with-GWMR-Approach-Script-Program
